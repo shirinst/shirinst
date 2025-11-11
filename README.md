@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shirinst
-- 👀 I’m interested in ThunderCore
+- 👀 I’m interested in ThunderCore, PHI, G7-HIS
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
